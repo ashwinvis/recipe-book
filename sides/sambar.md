@@ -19,6 +19,6 @@ For the spice mix
 
 ## Instructions
 
-- Boil all the main ingredients
+- Boil all the main ingredients in a pressure cooker
 - Saute the spice mix
 - Mix it together
